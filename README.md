@@ -7,10 +7,13 @@ I’m passionate about exploring data to uncover insights—it’s like solving 
 
 👨‍💻 All of my projects are available at 
 
-📝 I regularly write articles on 
+📝 I regularly write articles on https://medium.com/@shikhayadav0428
 
 📫 How to reach me shikhayadav0428@gmail.com
 
 ⚡ Fun fact Data analysts are the modern-day detectives, solving mysteries hidden within mountains of data.
 
 Connect with me:
+www.linkedin.com/in/shikhaya
+
+
