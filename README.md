@@ -5,7 +5,7 @@ I’m passionate about exploring data to uncover insights—it’s like solving 
 
 👨‍💻 All of my projects are available at 
 
-📝 I regularly write articles on https://medium.com/@kavar.krishna
+📝 I regularly write articles on 
 
 📫 How to reach me shikhayadav0428@gmail.com
 
