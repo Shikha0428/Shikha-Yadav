@@ -11,7 +11,7 @@ I’m passionate about exploring data to uncover insights—it’s like solving 
 
 📫 How to reach me shikhayadav0428@gmail.com
 
-⚡ Fun fact Data analysts are the modern-day detectives, solving mysteries hidden within mountains of data.
+⚡ The goal is to transform data into information, and information into actionable insight.
 
 Connect with me:
 www.linkedin.com/in/shikhaya
