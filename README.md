@@ -5,7 +5,7 @@ I’m passionate about exploring data to uncover insights—it’s like solving 
 
 🔭 I’m currently working at Cognizant
 
-👨‍💻 All of my projects are available at 
+👨‍💻 All of my projects are available at https://shikhayadav0403.wixsite.com/my-site-4
 
 📝 I regularly write articles on https://medium.com/@shikhayadav0428
 
